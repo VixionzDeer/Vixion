@@ -8,3 +8,5 @@ I have adhd, and a short attention span, if I switch off-topic I am sorry, I jus
 
 
 DNI : Under 9. Over 18/20. 
+
+Fandoms : Forsaken, Phighting, Die of Death, BlockTales, Garten of BanBan (DID WE FORGET ABOUT TBE CHILD?), Missing Dogs (Upcoming Game). (THERES MORE I JUST FORGOT)
